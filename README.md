@@ -1,1 +1,0 @@
-# Ogrenci-Ders-Secme-Otomasyonu
